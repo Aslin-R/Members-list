@@ -4,7 +4,7 @@
 
 #### 1)Alex Anna - 3/9/1985
 #### 2)Max Anna - 6/3
-#### 3)Pastor Durai
+#### 3)Pastor Durai - 3/9
 
 ## Leaders :
 
@@ -17,14 +17,14 @@
 #### 7)Stabin - 15/3/2006
 #### 8)Steev - 1/9/2010
 #### 9)Benani - 3/9/2009
-#### 10)Ratheesh
+#### 10)Ratheesh - 3/8
 #### 11)John - 16/4/2008
 #### 12)Roshan - 10/7/2010
-#### 13)Asheth
-#### 14)Aslin
+#### 13)Asheth - 14/6
+#### 14)Aslin - 22/9
 #### 15)Jeffrey - 19/5/2011
 
-#### 16)Robin
+#### 16)Robin - 4/12
 #### 17)Godwin - 24/1/1998
 #### 18)Beno
 #### 19)Beautlin Arath – 17/6
